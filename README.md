@@ -1,1 +1,2 @@
-https://8weeksqlchallenge.com/images/case-study-designs/3.png
+🥑 Case Study #3: Foodie-Fi
+Image
